@@ -40,4 +40,5 @@ First prize, national level, China National College Students' E-commerce "Innova
 
 ## Contact
 
-[jianghongyulucky@163.com](mailto:jianghongyulucky@163.com)
+[656223516@qq.com](mailto:656223516@qq.com)  
+[hydraj0529@gmail.com](mailto:hydraj0529@gmail.com)
